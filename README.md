@@ -2,7 +2,7 @@
 
 **`An Phan (Product Designer/Cloud Engineer)`**
 
-I'm senior student at the UED (University of Science and Education - The University of Danang). Currently i'm pursuiting to my best level of myself. And now, here i come for the highlight!
+I'm a senior student at the UED (University of Science and Education—The University of Danang). I'm currently striving to be the best version of myself. And now, here I come for the highlight!
 
 ![](https://github.com/iamphanan13/iamphanan13/blob/main/gif/geats-henshin2.gif)
 
